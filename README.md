@@ -2,9 +2,9 @@
 
 수정해서 팔든지 알아서하셈
 
-By: Blaine78 , System [시스템]
+By: Blaine78 , Aechwi
 
-세팅 문의 : Blaine78#0001 , System [시스템]#0617
+세팅 문의 : Blaine78#0001 , Aechwi#4678
 
 블레인 커뮤니티
 https://ichie.xyz/Blaine_Community
