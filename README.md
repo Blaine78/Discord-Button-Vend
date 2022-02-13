@@ -1,4 +1,4 @@
-# discord-BUTTON-VEND-main
+# Discord-Button-Vend
 
 수정해서 팔든지 알아서하셈
 
