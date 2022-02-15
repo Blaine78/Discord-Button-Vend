@@ -2,8 +2,6 @@
 
 수정해서 팔든지 알아서하셈
 
-By: Blaine78 , Aechwi#4678
-
 블레인 커뮤니티
 https://ichie.xyz/Blaine_Community
 
