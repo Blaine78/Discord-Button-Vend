@@ -7,5 +7,3 @@ https://ichie.xyz/Blaine_Community
 
 웹사이트
 http://blaine-community.kro.kr/
-
-예전에 만든거라 사용법 까먹음 알아서하셈
