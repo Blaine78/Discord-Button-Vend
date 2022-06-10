@@ -7,3 +7,5 @@ https://ichie.xyz/Blaine_Community
 
 웹사이트
 http://blaine-community.kro.kr/
+
+세팅 문의 안받아요.
